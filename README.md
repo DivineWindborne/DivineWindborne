@@ -4,9 +4,10 @@
 <img src="https://i.pinimg.com/736x/28/e9/a2/28e9a21111d80fc1bf8c002397b33660.jpg"width="600" />
 </p>
 
-<p align="center"> ${\color{purple}2:18 —————◉——— 4:51}$ </p>
+<p align="center"> ${\color{purple}Lana Del Rey \space - \space Diet \space mountain \space Dew}$ </p>
+<p align="center"> ${\color{purple}2:27 ———————◉———— 3:45}$ </p>
 
-<p align="center"> ${\color{lightblue}"Us \space in \space a \space king-size, \space keep \space it \space a \space secret. \space Say \space I'm \space your \space queen, \space I \space don't \space wanna \space leave \space this.."}$ </p>
+<p align="center"> ${\color{lightblue}"Never \space was \space there \space ever \space a \space goddess \space so \space pretty."}$ </p>
 
 <p align="center"> ${\color{pink}.｡.:* ♡ *: .｡.}$ </p>
 
