@@ -1,7 +1,9 @@
 # <p align="center"> ${\color{pink} Divine Windblume}$ </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/28/e9/a2/28e9a21111d80fc1bf8c002397b33660.jpg"width="600" />
+<img src="https://i.pinimg.com/736x/16/0c/f4/160cf43b9c605a9311a8502aeb52f388.jpg"width="600" />
+</p>
+<p align="center"> ${\color{purple}COMMS \space by \space Apple \space (rapple.pie) \space on (TIKTOK)}$ https://www.tiktok.com/@rapple.pie?_r=1&-t=ZS-9A70t3n6nCS
 </p>
 
 <p align="center"> ${\color{purple}Lana Del Rey \space - \space Diet \space mountain \space Dew}$ </p>
@@ -32,7 +34,9 @@
 <p align="center"> ${\color{lightblue}Here \space I \space return, \space in \space wind \space and \space bloom, }$ </p>
 <p align="center"> ${\color{lightblue}Divine \space Windblume, \space dispelling \space gloom.”}$ </p>
 
-
+<p align="center">
+<img src="https://i.pinimg.com/736x/28/e9/a2/28e9a21111d80fc1bf8c002397b33660.jpg"width="600" />
+</p>
 
 <p align="center"> They're both canon, your honor. </p>
 <p align="center"> READ loversperpetuity FOR LADYHANAROU'S INFO and gracefulfreedom FOR VENROU/HAVEN. </p>
