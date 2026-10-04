@@ -1,7 +1,7 @@
 # <p align="center"> ${\color{pink} Divine Windblume}$ </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/16/0c/f4/160cf43b9c605a9311a8502aeb52f388.jpg"width="600" />
+<img src="https://i.pinimg.com/736x/16/0c/f4/160cf43b9c605a9311a8502aeb52f388.jpg"width="400" />
 </p>
 <p align="center"> ${\color{purple}COMMS \space by \space Apple \space (rapple.pie) \space on (TIKTOK)}$ https://www.tiktok.com/@rapple.pie?_r=1&-t=ZS-9A70t3n6nCS
 </p>
