@@ -1,4 +1,4 @@
-# <p align="center"> ${\color{pink} Divine Windblume}$ </p>
+# <p align="center"> ${\color{pink} Divine Windborne}$ </p>
 
 https://github.com/user-attachments/assets/8da4efba-4ab0-48e7-ae27-2b298e20b946
 
