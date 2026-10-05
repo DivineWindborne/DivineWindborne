@@ -40,9 +40,10 @@
 <p align="center"> ${\color{lightblue}Other \space UNBIOLOGICAL \space Children \space :P}$ </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/f7/a3/3b/f7a33b3a30765f25f193d60fa2839c10.jpg"width="400" />
+<img src="https://i.pinimg.com/736x/48/b3/ee/48b3ee1dee8f4c35b0d9e44a8db90892.jpg"width="400" />
 </p>
 <p align="center"> ${\color{lightblue}Like \space what \space he \space said... }$ </p>
+<p align="center"> ${\color{purple}Hanzu \space art \space made \space by \space me \space and \space  Yue \space a.k.a \space YUNNIE \space <33 \space TYSM \space GNG}$ </p>
 
 
 <p align="center"> WIP </p>
