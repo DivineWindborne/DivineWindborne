@@ -26,6 +26,10 @@
 <p align="center"> ${\color{pink}.｡.:* ♡ *: .｡.}$ </p>
 
 <p align="center">
+<img src="https://i.pinimg.com/736x/53/59/6d/53596dd771110821ce30793517d4a7bb.jpg"width="400" />
+</p>
+
+<p align="center">
 <img src="https://i.pinimg.com/736x/9a/f8/0b/9af80beba30fc760885741e91bfbb9be.jpg"width="400" />
 </p>
 
