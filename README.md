@@ -28,7 +28,7 @@
 <p align="center">
 <img src="https://i.pinimg.com/736x/85/bf/e3/85bfe3d8be83296247962c780bfca1eb.jpg"width="400" />
 </p>
-<p align="center"> ${\color{lightblue}HBD \space GIFT \space 4 \space YUEEE, \space I \space LOVE \space YOU \space AND \space HOPE \space YA \space LIKE \space ITTTT \space <33 ?"}$ </p>
+<p align="center"> ${\color{lightblue}HBD \space GIFT \space 4 \space YUE \space THE \space HARDCORE \space HANZU \space SIMP, \space I \space LOVE \space YOU \space AND \space HOPE \space YA \space LIKE \space ITTTT \space <33 ?"}$ </p>
 
 <p align="center">
 <img src="https://i.pinimg.com/736x/53/59/6d/53596dd771110821ce30793517d4a7bb.jpg"width="400" />
